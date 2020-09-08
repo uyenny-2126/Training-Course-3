@@ -2,11 +2,11 @@
 
 ## Tên
 
-Nga-chan
+Huynh Thi Thuy Nga
 
 ## Tuổi
 
-18
+24
 
 ## Nghề nghiệp
 
