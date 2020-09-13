@@ -2,11 +2,11 @@
 
 ## Tên
 
-Nga-kun
+uyen
 
 ## Tuổi
 
-18+
+18
 
 ## Nghề nghiệp
 
